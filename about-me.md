@@ -6,7 +6,8 @@ Hi, I'm Caroline. I'm a Design Researcher at the US Digital Service, working for
 
 - **Past Companies and Organizations:**
 - **Hobbies:**
-  - Reading & listening to podcasts
+  - Reading non-fiction
+  - Listening to podcasts
   - Traveling
   - Techno
 - **Favorite Website:** []()
