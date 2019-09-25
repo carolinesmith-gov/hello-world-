@@ -6,5 +6,9 @@
 Hi, I'm Caroline. I'm a Design Researcher at the US Digital Service, working for Health and Human Services, Centers for Medicare & Medicaid.
 
 - **Past Companies and Organizations:**
-- **Hobbies:**
+- **Hobbies:
+Reading & listening to podcasts
+Traveling
+Techno
+**
 - **Favorite Website:** []()
